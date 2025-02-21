@@ -6,4 +6,4 @@ Repositório criado no âmbito da UC de AVD.
 - Joana
 - Mariana
 
-Teste
+Let's work!
