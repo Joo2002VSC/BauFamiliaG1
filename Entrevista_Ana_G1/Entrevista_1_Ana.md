@@ -3,6 +3,7 @@ Date: 03/06/2025
 Title: Entrevista-1-Ana
 
 00:00:00 
+
 Speaker 1: Qual é a memória mais antiga de que te recordas? 
 
 Speaker 2: A memória mais antiga que me recordo... Quando 
