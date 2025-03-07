@@ -1,7 +1,7 @@
 # Entrevista Avó João
 
 ## Introdução
-Esta entrevista foi realizada para documentar as memórias e histórias da infância do Avô João em Castro Vicente.
+Esta entrevista foi realizada para documentar as memórias e histórias da avó de João Garção.
 
 ## Entrevista
 
