@@ -10,7 +10,7 @@ Speaker 2: Ana
 
 ----
 
-# Transcrição Entrevista da Ana - Memórias de uma vida
+# Transcrição Entrevista da Ana - Memórias impactantes
 
 00:00:00 
 
