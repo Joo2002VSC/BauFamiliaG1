@@ -1,9 +1,15 @@
 # Entrevista Avó João
 
+--- 
+
 ## Introdução
 Esta entrevista foi realizada para documentar as memórias e histórias da avó de João Garção.
 
+---
+
 ## Entrevista
+
+---
 
 **Entrevistador:** Boa tarde, avó. Obrigado por aceitares o convite. Conta as diferenças de viver ali na zona do Monte Largo e viver aqui.
 
