@@ -2,8 +2,8 @@
 Repositório criado no âmbito da UC de AVD.
 
 ## Equipa
-- João
 - Joana
+- João
 - Mariana
 
 Let's work!
