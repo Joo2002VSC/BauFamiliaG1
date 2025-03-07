@@ -25,8 +25,12 @@ Esta entrevista foi realizada para documentar as memórias e histórias da avó 
 
 **Entrevistador:** Muito bem, obrigado pela disponibilidade, avó.
 
-## Foto da Entrevista
-![Foto Entrevista](/Users/joaogarcao/Desktop/MHD/II%20Semestre/PI%20II/Foto%20PI%20II.jpg "Foto da Entrevista")
+
+
+
+
+
+
 
 
 
