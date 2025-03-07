@@ -1,11 +1,9 @@
 ---
-
-**Título:** Entrevista a João Apresentação
-**Entrevistadora:** Mariana Gomes
-**Entrevistado:** João Apresentação
-**Data:** 05/03/2025
-**Ferramenta de Transcrição:** EvenNote
-
+Título: Entrevista a João Apresentação
+Entrevistadora: Mariana Gomes
+Entrevistado: João Apresentação
+Data: 05/03/2025
+Ferramenta de Transcrição: EvenNote
 ---
 
 
