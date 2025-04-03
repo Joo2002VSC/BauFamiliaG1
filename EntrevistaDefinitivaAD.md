@@ -231,5 +231,6 @@
 **João:**: Já foi uma entrevista muito produtiva, já não vai dar para abordar muito mais. Obrigado pela disponibilidade e depois vemo nos noutra altura. Obrigado.
 
 **Avó do João:** De nada. Sempre.
+
 ---
 ## Final da Entrevista
