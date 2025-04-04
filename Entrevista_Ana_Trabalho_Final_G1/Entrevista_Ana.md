@@ -1,20 +1,12 @@
 ---
 
-Title: 
+Title: Entrevista à minha mãe, Ana para o Trabalho Final de Análise e Visualisação de Dados
 
-Entrevista à minha mãe, Ana para o Trabalho Final de Análise e Visualisação de Dados
+Date: 03/04/2025
 
-Date: 
+Entrevistadora: Joana
 
-03/04/2025
-
-Entrevistadora: 
-
-Joana
-
-Entrevistada: 
-
-Ana
+Entrevistada: Ana
 
 ---
 
