@@ -1,5 +1,18 @@
 # Entrevista Definitiva para o Trabalho de Análise e Visualização de Dados
 ---
+
+Title: Entrevista à minha avó para o Trabalho Final de Análise e Visualisação de Dados
+
+
+Date: 02/04/2025
+
+
+Entrevistador: João Garção
+
+
+Entrevistada: Rosa Reis
+
+---
 ## Corpo da Entrevista
 **João:** Boa tarde. Estou aqui hoje para entrevistar a minha avó. Irei então fazer-lhe uma série de perguntas às quais ela vai responder e procurarei ser o mais objetivo possível com ela para que as respostas possam ser fluídas. Sendo assim, boa tarde, hoje irei colocar-te uma série de perguntas. O objetivo é isto ser uma conversa assim mais informal e estou à espera que consigas responder a tudo ou a praticamente tudo o que eu irei perguntar. Então, o que é que tens a dizer da tua infância, de que é que te lembras mais, o que é que te fez mais feliz e o que é que era diferente que hoje não é assim tão igual?
 
