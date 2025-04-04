@@ -7,6 +7,8 @@ Entrevistadora: Joana
 
 Entrevistada: Ana
 
+Fotografia: Ana grávida de mim (Joana) em 2002
+
 ---
 
 **00:00**
@@ -175,3 +177,6 @@ Ehhh...
 4-2!? 6,6-2 já, já.
 6-2 porque?
 É impensável ter 6 filhos hoje, só, só mesmo aquelas famílias numerosas.
+
+
+![Ana grávida da Joana (mim) em 2002](foto_ana_gravida.jpg)
