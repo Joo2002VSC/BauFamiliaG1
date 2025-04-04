@@ -1,16 +1,16 @@
 # Entrevista Definitiva para o Trabalho de Análise e Visualização de Dados
 ---
 
-Title: Entrevista à minha avó para o Trabalho Final de Análise e Visualisação de Dados
+**Title:** Entrevista à minha avó para o Trabalho Final de Análise e Visualisação de Dados
 
 
-Date: 02/04/2025
+**Date:** 02/04/2025
 
 
-Entrevistador: João Garção
+**Entrevistador:** João Garção
 
 
-Entrevistada: Rosa Reis
+**Entrevistada:** Rosa Reis
 
 ---
 ## Corpo da Entrevista
