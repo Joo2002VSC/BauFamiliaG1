@@ -103,7 +103,7 @@
 
 **João:** Devia ser muito tempo. Quanto é que uma pessoa demoraria na fila assim, em média?
 
-**Avó do João:** Tudo isto sem exageros. Ora, nós tínhamos filas aí, sei lá, de de para aí de 20 metros.
+**Avó do João:** Tudo isto sem exageros. Ora, nós tínhamos filas aí, sei lá, de de para aí de 20m.
 
 **João:** Saíam do Banco? Pensei que fosse maior. 
 
@@ -111,19 +111,15 @@
 
 **João:** E os turnos, como é que era? Era assim normal? Era 8 horas?
 
-**Avó do João:** Não, não, não. O horário era igual. Nós entrávamos às 08h30, saíamos e tínhamos 01h00 para almoçar. Depois saíamos às 04h30, mas nunca saíamos às 04h30 porque tínhamos muito movimento para o balcão e havia serviço administrativo. Tinha que ser feito o que nos obrigava, o que obrigava. Tínhamos de trabalhar fora de horas porque não tínhamos capacidade para o fazer dentro do horário normal, a parte administrativa.
+**Avó do João:** Não, não, não. O horário era igual. Nós entrávamos às 08h30, saíamos e tínhamos 1h para almoçar. Depois saíamos às 04h30, mas nunca saíamos às 04h30 porque tínhamos muito movimento para o balcão e havia serviço administrativo que tinha que ser feito, o que nos obrigava a trabalhar fora de horas porque não tínhamos capacidade para fazer dentro do horário normal a parte administrativa.
 
-**João:** Nessa altura, o Santander era o edifício que é agora o *Santander Empresas* mais o dos clientes? Não era tudo junto.
+**João:** Nessa altura, o Santander era o edifício que é agora o *Santander Empresas*, mais o dos clientes, não era?
 
-**Avó do João:** Naquilo, Naquele.
+**Avó do João:** Não, naquele tempo, era o Santander que existe agora para clientes, que que era o Banco Totta e Açores. Depois de fazer a fusão com Santander é que criaram o Santander Empresas, que neste momento está a funcionar num edifício à parte.
 
-**João:** Tempo.
+**João:** Ou seja, vocês faziam o que fazia o Santander Empresas. O que acontece lá agora faziam lá as instalações antigas?
 
-**Avó do João:** Mas o que é que é o tempo? Era o Santander. O que existe agora para clientes? Hã? Agora, depois de que era o Banco Totta e Açores, eram o Banco Totta e Açores. Depois de fazer a fusão com Santander é que criaram o Santander Empresas que neste momento está a funcionar num edifício à parte.
-
-**João:** Ou seja, vocês faziam o que faziam ao Santander? Empresas faziam. O que acontece lá agora? Faziam lá as instalações antigas?
-
-**Avó do João:** Não fazíamos parte da Comunidade Europeia, portanto havia muito movimento de moeda estrangeira, especialmente os imigrantes.
+**Avó do João:** Exatamente. Também não fazíamos parte da Comunidade Europeia, portanto havia muito movimento de moeda estrangeira, especialmente os imigrantes.
 
 **João:** Traziam as remessas.
 
@@ -155,7 +151,7 @@
 
 **João:** E nessa altura, mais no que diz respeito à cidade, o que é que na altura era diferente ou consideravelmente diferente e agora neste momento já não é assim?
 
-**Avó do João:** Diferente m que aspeto?
+**Avó do João:** Diferente em que aspeto?
 
 **João:** Ou para o melhor ou para pior, Ou coisas que eram mais difíceis ou que agora.
 
