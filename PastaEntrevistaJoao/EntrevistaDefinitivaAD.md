@@ -242,8 +242,12 @@
 ---
 #Fotos:
 
-![Fig.1 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+<div align="center">
+  <figure>
+    <img src="Foto_5_Alexandre_e_Gisela.jpeg" alt="Fig.1 - Alexandre e Gisela" width="400">
+    <figcaption><em>Fig.1 - Alexandre e Gisela</em></figcaption>
+  </figure>
+</div>
 
-*Fig.1 - Alexandre e Gisela*
 
 
