@@ -243,22 +243,25 @@
 ---
 # Fotos:
 
-![Fig.1 - Rosa Reis com os seus irmãos em 1970, no Huambo.](Foto_Rosa_Reis_Marco_1970_Huambo.jpeg)
+![Fig.1 - Casamento da minha tia-avó em 1958, em Benguela.](Casamento_Esmeralda_1959_Benguela.jpeg)
+**Fig.1** - Casamento da minha tia-avó em 1958, em Benguela.
 
-**Fig.1** - Rosa Reis com os seus irmãos em 1970, no Huambo.
+![Fig.2 - Rosa Reis com os seus irmãos em 1970, no Huambo.](Foto_Rosa_Reis_Marco_1970_Huambo.jpeg)
 
-![Fig.2 - Foto tirada em 1970 em Cabinda](Foto_6_Rosa_Reis_1970.jpeg)
+**Fig.2** - Rosa Reis com os seus irmãos em 1970, no Huambo.
 
-**Fig.2** - Foto tirada em 1970 em Cabinda
+![Fig.3 - Foto tirada em 1970 em Cabinda](Foto_6_Rosa_Reis_1970.jpeg)
 
-![Fig.3 - Casamento de Rosa Reis, Huambo, 1971.](Foto_7_Casamento_Rosa_Reis.jpg)
+**Fig.3** - Foto tirada em 1970 em Cabinda
 
-**Fig.3** - Casamento de Rosa Reis, Huambo, 1971.
+![Fig.4 - Casamento de Rosa Reis, Huambo, 1971.](Foto_7_Casamento_Rosa_Reis.jpg)
 
-![Fig.4 - Rosa Reis e a sua filha Gisela em 1974, no Kuito.](Rosa_Reis_Gisela_Reis_1974.jpeg)
+**Fig.4** - Casamento de Rosa Reis, Huambo, 1971.
 
-**Fig.4** - Rosa Reis e a sua filha Gisela em 1974, no Kuito.
+![Fig.5 - Rosa Reis e a sua filha Gisela em 1974, no Kuito.](Rosa_Reis_Gisela_Reis_1974.jpeg)
 
-![Fig.5 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+**Fig.5** - Rosa Reis e a sua filha Gisela em 1974, no Kuito.
 
-**Fig.5** - Alexandre e Gisela
+![Fig.6 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+
+**Fig.6** - Alexandre e Gisela
