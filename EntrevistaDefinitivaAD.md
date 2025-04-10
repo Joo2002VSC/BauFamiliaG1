@@ -127,119 +127,115 @@
 
 **João:** Traziam as remessas.
 
-**Avó do João:** As remessas de dinheiro.
+**Avó do João:** Traziam as remessas de dinheiro.
 
 **João:** Era tudo. Tudo físico, não é? Eles traziam sacos com notas.
 
-**Avó do João:** E sim, sim, malas e malas, não digo, traziam dinheiro físico. Eles também podiam fazer transferências. Também faziam transferências.
+**Avó do João:** Sim. Malas, não digo, eles traziam dinheiro físico. Eles também podiam fazer transferências. Também faziam transferências.
 
-**João:** E como é que se fazia ao câmbio de moeda? Antigamente era muito demorado. Como é que era o câmbio?
+**João:** E como é que se fazia o câmbio de moeda antigamente? Era muito demorado? Como é que era o câmbio?
 
-**Avó do João:** Nós tínhamos acesso ao valor cambial da moeda, fazemos a compra da moeda ou a venda. Às vezes iam lá comprar. Nós também tínhamos estoque de moeda, não é? E quando não tínhamos estoque? Normalmente, quando o cliente, especialmente os empresários, os empresários, quando iam às feiras, à Europa, eles requisitavam as moedas estrangeiras de acordo com o país que fossem. Se fossem para França, eram francos. Franceses não. E fossem para a Itália, eram as libras. E então nós tínhamos que requisitar aos serviços centrais.
+**Avó do João:** Nós tínhamos acesso ao valor cambial da moeda, fazíamos a compra da moeda ou a venda. Às vezes iam lá comprar. Nós também tínhamos stock de moeda, não é? E quando não tínhamos stock? Normalmente, quando o cliente, especialmente os empresários, os empresários, quando iam às feiras, à Europa, eles requisitavam as moedas estrangeiras de acordo com o país que fossem. Se fossem para França, eram francos franceses, não é?. E fossem para a Itália, eram as libras. E então nós tínhamos que requisitar aos serviços centrais.
 
-**João:** E se não houvesse arremesso? Se fosse uma moeda que não estava no banco.
+**João:** E se não houvesse remessa? Se fosse uma moeda que não estava no banco.
 
 **Avó do João:** Normalmente tinha. Os serviços centrais tinham sempre reserva para isso.
 
 **João:** Nem que fosse àquelas dos países menos frequentados.
 
-**Avó do João:** Sim, em última análise, havia o dólar, que também era aceito em todo o lado.
+**Avó do João:** Sim, em última análise, havia o dólar, que também era aceite em todo o lado.
 
-**João:** Pois acredito.
+**João:** Pois, acredito.
 
-**Avó do João:** Exactamente. E então era assim que funcionava. Mas pronto, era. Havia uma interacção com a clientela muito maior. E havia bom ambiente. Não há dúvida nenhuma que. Era diferente, era muito diferente. Os clientes passavam e também passavam a ser quase como uma família. E nós éramos os seus. Os seus conselheiros muitas vezes. E pronto, Ouvíamos de tudo. E eu gostei muito. Foi um trabalho que realmente eu nasci para isso. Adorei esse trabalho.
+**Avó do João:** Exactamente. E então era assim que funcionava. Mas pronto. Havia uma interação com a clientela muito maior. E havia bom ambiente. Não há dúvida nenhuma que era diferente, era muito diferente. Os clientes passavam também passavam a ser quase como uma família. E nós éramos os seus conselheiros, muitas vezes. E pronto, ouvíamos de tudo. E eu gostei muito. Foi um trabalho que realmente eu nasci para isso. Adorei esse trabalho.
 
-**João:** Naquela altura, Guimarães só tinha aquele balcão do Santander. Eu via mais.
+**João:** Naquela altura, Guimarães só tinha aquele balcão do Santander ou havia mais?
 
-**Avó do João:** Quando eu vim para cá, só havia um balcão do Santander. Depois, mais tarde, o Santander comprou o Crédito Predial Português e sei que em Guimarães, quando eu saí. Quando eu saí para a reforma, nós tínhamos em Guimarães três balcões. Entretanto, há aqui uma freguesia que é Pevidém, que pertence a Guimarães, também, que também tinha um balcão. Portanto nós é que só em Guimarães tínhamos, Tínhamos na Avenida Dom João Quarto, tínhamos em Azurém. Tínhamos o Toural e tínhamos nas Taipas e em Pevidém.
+**Avó do João:** Quando eu vim para cá, só havia um balcão do Santander. Depois, mais tarde, o Santander comprou o Crédito Predial Português e sei que em Guimarães, quando eu saí para a reforma, nós tínhamos em Guimarães três balcões. Entretanto, há aqui uma freguesia que é Pevidém, que pertence a Guimarães também, que também tinha um balcão. Portanto, nós aqui só em Guimarães tínhamos na Avenida D. João IV, tínhamos em Azurém, tínhamos o Toural e tínhamos nas Taipas e em Pevidém.
 
-**João:** E nessa altura, mais no que diz respeito à cidade, o que é que na altura era diferente ou consideravelmente diferente? E agora neste momento já não é assim diferente.
+**João:** E nessa altura, mais no que diz respeito à cidade, o que é que na altura era diferente ou consideravelmente diferente e agora neste momento já não é assim?
 
-**Avó do João:** Em que aspeto?
+**Avó do João:** Diferente m que aspeto?
 
 **João:** Ou para o melhor ou para pior, Ou coisas que eram mais difíceis ou que agora.
 
-**Avó do João:** No que se refere à banca, torna se muito mais facilitado porque nós praticamente não precisamos de ir ao banco. Fazemos através da ATM de. Como é que se chama? Depois corrige aí através da internet não é assim. A maior parte da da da net banco fazemos as operações todas que precisamos de fazer. Não é só normalmente utilizamos mais o Só saímos de casa para fazer qualquer movimento bancário quando precisamos de levantar dinheiro. Caso contrário, depósitos, transferências, fazemos tudo outra vez. Portanto, é muito. Facilitou bastante e muito mais. E Guimarães evoluiu. Eu vim para aqui em 1977. Claro, em termos de. A cidade cresceu bastante. Não havia shoppings. Mais tarde é que vieram os shoppings. Eu vim para aqui em 77. Os shoppings são dos anos 80, 80 e.
+**Avó do João:** No que se refere à banca, torna-se muito mais facilitado porque nós praticamente não precisamos de ir ao banco. Fazemos através da Internet, da Netbanco. Fazemos as operações todas que precisamos de fazer, não é? Normalmente só saímos de casa para fazer qualquer movimento bancário quando precisamos de levantar dinheiro. Caso contrário, depósitos, transferências, fazemos tudo através da Internet. Portanto, facilitou bastante e muito mais. E Guimarães evoluiu. Eu vim para aqui em 1977. A cidade cresceu bastante. Não havia shoppings. Mais tarde é que vieram os shoppings. Eu vim para aqui em 77. Os shoppings são dos anos 80, 80 e.
 
 **João:** 80 e muitos, quase 90.
 
-**Avó do João:** Quase, quase, quase 90 estradas.
+**Avó do João:** Quase, quase, quase 90.
 
 **João:** Não havia autoestrada, pois não?
 
-**Avó do João:** Não, não havia autoestrada. Fez se autoestrada. Os meios de comunicação evoluíram bastante. A população também aumentou. Pronto. Modificaram para melhor. Acho que para melhor. Guimarães é uma cidade muito bonita. É uma cidade? É, penso eu. A conheço. Já a parte de Portugal, a maior parte de Portugal, que é uma das cidades onde a qualidade de vida é melhor e melhor, porque é uma cidade muito aconchegante. Estamos perto de tudo. Não nos podemos. A maior parte das pessoas não se precisam de se deslocar de automóvel a pé. Conseguem resolver os seus problemas. E é uma cidade bonita, uma cidade histórica. Apesar de. Basta dizer aqui nasceu Portugal. Os vimaranenses são muito orgulhosos da sua terra e, portanto, como tal, eles são cuidadosos. Deve ser das terras em Portugal, com as ruas mais limpas.
+**Avó do João:** Não, não havia autoestrada. Fez-se a autoestrada. Os meios de comunicação evoluíram bastante. A população também aumentou. Pronto, modificaram para melhor. Acho que para melhor. Guimarães é uma cidade muito bonita. E penso eu, eu conheço já a maior parte de Portugal, que é uma das cidades onde a qualidade de vida é melhor. É melhor, porque é uma cidade muito aconchegante, estamos perto de tudo. A maior parte das pessoas não se precisam de se deslocar de automóvel. A pé conseguem resolver os seus problemas. E é uma cidade bonita, uma cidade histórica. Basta dizer "aqui nasceu Portugal". Os vimaranenses são muito orgulhosos da sua terra e, portanto, como tal, eles são cuidadosos. Deve ser das terras em Portugal com as ruas mais limpas.
 
 **João:** E com espaços verdes.
 
-**Avó do João:** E com espaços verdes, espaços verdes e muitos espaços verdes. Eh eh eh. É uma cidade típica porque a parte histórica está muito bem conservada. Aquilo, portanto. Depois tu corrige aí aquilo é um. Seu património. Foi nomeado Património.
+**Avó do João:** E com espaços verdes, muitos espaços verdes. É uma cidade típica porque a parte histórica está muito bem conservada. 
 
-**João:** Da Cidade Europeia da Cultura.
+**João:** Cidade Europeia da Cultura.
 
-**Avó do João:** Cidade Europeia da Cultura, portanto, em tudo. Depois corrijo isso não é para fazer a gravação. Daí, portanto, atendendo a isso, pronto, estás aí um jeito a essa, a essa parte. E gosto, Gosto. E eu não trocava a Guimarães por nada, porque sinto me muito bem nesta cidade.
+**Avó do João:** Cidade Europeia da Cultura. E gosto, Gosto. E eu não trocava a Guimarães por nada, porque sinto-me muito bem nesta cidade.
 
 **João:** E assim, se calhar o que é que gostas mais na cidade? Ou que gostavas quando vieste para cá? O que é que gostavas mais?
 
-**Avó do João:** Eu quando vim para cá, no início estava numa situação um bocado complicada. Já uma vez que estava a começar uma vida nova em Portugal, porque tinha regressado de Angola e estava naquele período de adaptação.
+**Avó do João:** Eu quando vim para cá, no início, estava numa situação um bocado complicada, uma vez que estava a começar uma vida nova em Portugal, porque tinha regressado de Angola e estava naquele período de adaptação.
 
 **João:** De incerteza.
 
-**Avó do João:** E de incerteza. O teu avô é professor? Era professor, como tu sabes. E ele estava ali na Baixa da Banheira a trabalhar. E eu estava aqui. Tinha o apoio da tua bisavó. Mas pronto, estava no início de vida. Mas conseguimos, passo a passo, recompormos e pusemo nos. E pronto. E não há dúvida que realmente é uma cidade que com bastantes recursos, o que me ajudou bastante também na progressão da minha vida e da vida familiar e profissional em que.
+**Avó do João:** E de incerteza. O teu avô era professor, como tu sabes e ele estava na Baixa da Banheira a trabalhar e eu estava aqui. Tinha o apoio da tua bisavó, mas pronto, estava no início de vida. Mas conseguimos, passo a passo, recompormo-nos e recompusemo-nos e pronto. E não há dúvida que realmente é uma cidade que com bastantes recursos, o que me ajudou bastante também na progressão da minha vida e da minha vida familiar e profissional.
 
-**João:** Em que sítios? Da cidade em que vocês moraram quando vieram para cá?
+**João:** Em que sítios da cidade é que vocês moraram quando vieram para cá?
 
-**Avó do João:** Enquanto no centro da cidade? Primeiro foi inicialmente. Moramos no centro da cidade, que era numa das avenidas principais que era a Avenida Dom Afonso Henriques e depois fomos viver. Compramos um apartamento numa freguesia que que é Zoran, mas localizada no Monte Largo que distava da cidade cerca de dois quilómetros e meio, sensivelmente. Aí já nos obrigava a termos que nos deslocar de automóvel ou autocarro. Entretanto, mais tarde, passado oito ou dez anos, comprámos uma. Comprei este apartamento onde nós vivíamos agora muito central, como tu vês. Estamos numa uma. Muito bem localizado. Temos todos, todos, todos os serviços à nossa porta.
+**Avó do João:** Inicialmente morámos no centro da cidade, numa das avenidas principais, que era a Avenida D. Afonso Henriques e depois comprámos um apartamento numa freguesia que é Azurém, mas localizada no Monte Largo, que distava da cidade cerca de 2,5km, sensivelmente. Aí já nos obrigava a termos que nos deslocar de automóvel ou autocarro. Entretanto, mais tarde, passado 8 ou 10 anos, omprei este apartamento onde nós vivemos agora. Muito central, como tu vês. Estamos muito bem localizados. Temos todos, todos, todos os serviços à nossa porta.
 
-**João:** A porta de casa.
+**João:** À porta de casa.
 
-**Avó do João:** A porta de casa. Desde. Cabeleireiras, Supermercados, Laboratório de análises Centro. O Centro de Saúde. Farmácia. Pastelarias. Até o campo de futebol. Portanto, nós da nossa casa conseguimos praticamente quase vemos o campo de futebol. Temos. Portanto, eu não preciso para ir ao centro da cidade que dista o centro, que é largo, doutoral. A vista da minha casa sensivelmente a 500 metros. Até lá não será tanto.
+**Avó do João:** A porta de casa. Desde Cabeleireiras, Supermercados, Laboratório de Análises, Centro de Saúde, Farmácia, Pastelarias. Até o campo de futebol. Portanto, nós da nossa casa quase vemos o campo de futebol. Portanto, para ir ao centro da cidade, dista 500m.
 
-**João:** Até que antigamente as pessoas deslocavam se de carro ou de autocarro. Como é que as pessoas faziam as deslocações para o trabalho?
+**João:** Antigamente as pessoas deslocavam se de carro ou de autocarro? Como é que as pessoas faziam as deslocações para o trabalho?
 
-**Avó do João:** As pessoas deslocavam se de autocarro. Havia, claro, que havia carros, mas não havia a quantidade de carros que existe hoje, porque as pessoas, entretanto, foram melhorando as suas vidas e, portanto, as pessoas da minha idade já estão velhas. Mas agora os jovens, os homens. As pessoas agora, com a idade da tua mãe e do teu pai, não há ninguém que não tenha um carro. Pois, pois. Não é que tenha uma vida completamente diferente. Pessoas que estudaram que que a maior parte das pessoas licenciadas e que tem a sua vida formada e portanto, com empregos razoáveis e que realmente, embora a cidade tenha esteja muito bem servida de autocarros, não é. Nós precisamos de autocarros e mais meios de transporte. Também não temos que que nos queixar. Temos autocarros, temos comboio, temos um autocarro só para fazer viagens para o aeroporto para quem precise deslocar e não quiser levar a viatura. Portanto, temos vários. Temos aquele campo de treino dos irmãos.
+**Avó do João:** A maior parte das pessoas deslocavam-se de autocarro. Claro que havia carros, mas não havia a quantidade de carros que existe hoje, porque as pessoas, entretanto, foram melhorando as suas vidas e, portanto, as pessoas da minha idade já estão velhas. Mas agora as pessoas com a idade da tua mãe e do teu pai, não há ninguém que não tenha um carro. Pessoas que estudaram, a maior parte das pessoas licenciadas e que têm a sua vida formada e, portanto, com empregos razoáveis, embora a cidade esteja muito bem servida de autocarros, não é? Nós precisamos de autocarros. Meios de transporte, também não temos que que nos queixar. Temos autocarros, temos comboio, temos um autocarro só para fazer viagens para o aeroporto para quem precise de se deslocar e não quiser levar a viatura. Portanto, temos vários. Temos aquele campo de treino dos irmãos.
 
 **João:** Gémeos Castro.
 
-**Avó do João:** Gémeos, Castro com piscina, com várias atividades. Eh eh. Vários ginásios. Temos uma feira semanal com tudo. Temos um mercado muito bem apetrechado, Temos vários, vários shopping, temos dois shoppings, mas hipermercados temos vários. Temos. Estamos muito bem servidos. Então, aqui nós, na nossa zona, até a veterinária temos consultórios médicos, temos a Cruz Verde, que funciona 24 horas por dia. Portanto, nós, em qualquer momento, qualquer coisa que surja, temos aquele apoio.
+**Avó do João:** Gémeos Castro, com piscina, com várias atividades, vários ginásios, temos uma feira semanal com tudo. temos um mercado muito bem apetrechado, Temos vários shoppings, mas hipermercados temos vários. Estamos muito bem servidos. Então, aqui nós, na nossa zona, até a veterinária temos, consultórios médicos, temos a Cruz Verde, que funciona 24 horas por dia. Portanto, nós, em qualquer momento, qualquer coisa que surja, temos aquele apoio.
 
-**João:** Pelo menos é o hospital que está aqui ao lado esse hospital. Quando é que abriu? Antigamente havia hospital velho.
+**João:** Pelo menos é o hospital que está aqui ao lado esse hospital. Quando é que abriu? Antigamente havia o Hospital Velho.
 
-**Avó do João:** Sim, eu quando vim para cá, o Hospital Novo começou a funcionar a partir de 1990. Foi a partir daí. Não sei precisar a inauguração concretamente. Ora bem, tu nasceste em 19012002A2002. Já foi no Hospital Novo. Portanto, a tua avó faleceu em 1990 e ainda faleceu no Hospital Velho.
+**Avó do João:** Sim, eu quando vim para cá, o Hospital Novo começou a funcionar a partir de 1990. Foi a partir daí. Não sei precisar a inauguração concretamente. Ora bem, tu nasceste em 2002, já foi no Hospital Novo. Portanto, a tua avó faleceu em 1990 e ainda faleceu no Hospital Velho.
 
 **João:** Ela foi na Nossa Senhora de Oliveira, que era o nome. Acho que é o nome que dão a hospital.
 
-**Avó do João:** Este é que é o Senhora de Oliveira. Aquele não sei qual é o nome, que é o hospital que fica ali ao.
-
-**João:** Pé da misericórdia e a.
-
-**Avó do João:** Misericórdia ao pé do castelo. Sim, foi aí, portanto, em 1990. A avó ainda morreu. Ainda existia. Funcionava se esse hospital.
+**Avó do João:** Este é que é o Senhora de Oliveira. Aquele não sei qual é o nome, que é o hospital que fica ali ao pé da Misericórdia ao pé do castelo. Sim, foi aí, portanto, em 1990. A avó morreu, ainda existia esse hospital.
 
 **João:** Na altura havia centros de saúde?
 
 **Avó do João:** Havia. Sempre. Houve sempre.
 
-**João:** Mas era mais consultórios daqueles médicos já muito conhecidos que tratavam toda a gente de certeza.
+**João:** Mas era mais consultórios daqueles médicos já muito conhecidos que tratavam toda a gente, de certeza.
 
-**Avó do João:** Havia médicos referenciados que se destacavam. Não eram. Havia muitos médicos. Agora há muitos mais. Mas havia um médico fazendo conforme as especialidades. Sabia se que Olha, se quiser ir ao oftalmologista, vais àquele médico X que ele é muito bom. Se for medicina dentária ou este médico Assim, assim. Não havia poucos. Poucos dentistas? Muito poucos. Estás a ver? Não havia muitos dentistas para ir. Dois ou três. Mas ginecologistas? Havia um que eu ainda fui consultado por esse médico que, por ironia do destino, a nossa rua tem o nome dele, que é o Dr. João Afonso de Almeida.
+**Avó do João:** Havia médicos referenciados que se destacavam, não era? Havia muitos médicos, agora há muitos mais, mas havia um médico fazendo conforme as especialidades. Sabia que se quisesse ir ao oftalmologista, "vais àquele médico X, que ele é muito bom." Se for medicina dentária, é este médico. Dentistas? Muito poucos. Estás a ver? Não havia muitos dentistas para ir, dois ou três. Mas ginecologistas? Havia um que eu ainda fui consultado por esse médico que, por ironia do destino, a nossa rua tem o nome dele, que é o Dr. João Afonso de Almeida.
 
-**João:** Aí eu pensei que ele fosse alguém mais antigo. Então já não é vivo? Pois não?
+**João:** Ah, eu pensei que ele fosse alguém mais antigo. Então já não é vivo, pois não?
 
-**Avó do João:** Não, já morreu. Mas eu ainda. Ele tinha consultório por cima da pastelaria do Osvaldinho.
+**Avó do João:** Não, já morreu. Ele tinha consultório por cima da pastelaria do Osvaldinho.
 
 **João:** Onde é que isso fica?
 
-**Avó do João:** É aquela pastelaria que fica na esquina para a rua de Vicente.
+**Avó do João:** É aquela pastelaria que fica na esquina para a rua Gil Vicente.
 
 **João:** Ok, já estou a ver.
 
-**Avó do João:** Estás a ver? Sim, Osvaldinho foi um grande jogador do Vitória.
+**Avó do João:** Estás a ver? Sim, Osvaldinho que foi um grande jogador do Vitória.
 
-**João:** Ele ficava, ficava aí o consultório, não é?
+**João:** Ficava aí o consultório, não é?
 
 **Avó do João:** O consultório ficava por cima.
 
 **João:** E via lá muita gente.
 
-**Avó do João:** Não ia. Quase todas as senhoras que estavam de bebé tinham problemas relacionadas com ginecologia. Iam lá porque ele era um médico de referência e toda a gente confiava naquele médico. Portanto, era IA. Havia o. O dentista era o Dr. Osvaldo, que era também conhecido. Já faleceu. Entretanto, as coisas foram evoluindo e começaram a haver mais clínicas. Aumentaram as clínicas privadas, Temos várias clínicas privadas, temos os dois hospitais, temos o Hospital do Estado, temos o Hospital da Luz, mas clínicas temos bastantes.
+**Avó do João:** Quase todas as senhoras que estavam de bebé tinham problemas relacionados com ginecologia. Iam lá porque ele era um médico de referência e toda a gente confiava naquele médico. Portanto, o dentista era o Dr. Osvaldo, que era também conhecido, já faleceu. Entretanto, as coisas foram evoluindo e começaram a haver mais clínicas. Aumentaram as clínicas privadas, temos várias clínicas privadas, temos os dois hospitais, temos o Hospital do Estado, temos o Hospital da Luz, mas clínicas temos bastantes.
 
 **João:** Já foi uma entrevista muito produtiva, já não vai dar para abordar muito mais. Obrigado pela disponibilidade e depois vemo nos noutra altura. Obrigado.
 
