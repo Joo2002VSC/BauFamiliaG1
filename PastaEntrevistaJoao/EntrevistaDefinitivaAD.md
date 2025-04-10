@@ -243,15 +243,18 @@
 ---
 # Fotos:
 
-![Fig.1 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+![Fig.1 - Rosa Reis com os seus irmãos em 1970, no Huambo.](Foto_Rosa_Reis_Marco_1970_Huambo.jpeg)
 
-**Fig.1** - Alexandre e Gisela
+**Fig.1** - Rosa Reis com os seus irmãos em 1970, no Huambo.
 
 ![Fig.2 - Foto tirada em 1970 em Cabinda](Foto_6_Rosa_Reis_1970.jpeg)
 
 **Fig.2** - Foto tirada em 1970 em Cabinda
 
 ![Fig.3 - Casamento de Rosa Reis, Huambo, 1971.](Foto_7_Casamento_Rosa_Reis.jpg)
+
 **Fig.3** - Casamento de Rosa Reis, Huambo, 1971.
 
+![Fig.4 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
 
+**Fig.4** - Alexandre e Gisela
