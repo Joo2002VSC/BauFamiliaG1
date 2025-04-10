@@ -247,7 +247,7 @@
 
 *Fig.1 - Alexandre e Gisela*
 
-![Fig.2 - Foto tirada em 1970 em Cabinda](Foto_6_Rosa_Reis_1955.jpeg)
+![Fig.2 - Foto tirada em 1970 em Cabinda](Foto_6_Rosa_Reis_1970.jpeg)
 
 *Fig.2 - Foto tirada em 1970 em Cabinda*
 
