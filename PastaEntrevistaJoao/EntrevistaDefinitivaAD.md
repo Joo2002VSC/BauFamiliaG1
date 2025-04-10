@@ -251,7 +251,7 @@
 
 **Fig.2** - Foto tirada em 1970 em Cabinda
 
-![Fig.3 - Casamento de Rosa Reis, 1971.](Foto_7_Casamento_Rosa_Reis.jpg)
-**Fig.3** - Casamento de Rosa Reis, 1971.
+![Fig.3 - Casamento de Rosa Reis, Huambo, 1971.](Foto_7_Casamento_Rosa_Reis.jpg)
+**Fig.3** - Casamento de Rosa Reis, Huambo, 1971.
 
 
