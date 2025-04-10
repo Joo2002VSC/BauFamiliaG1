@@ -255,6 +255,10 @@
 
 **Fig.3** - Casamento de Rosa Reis, Huambo, 1971.
 
-![Fig.4 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+![Fig.4 - Rosa Reis e a sua filha Gisela em 1974, no Kuito.](Rosa_Reis_Gisela_Reis_1974.jpeg)
 
-**Fig.4** - Alexandre e Gisela
+**Fig.4** - Rosa Reis e a sua filha Gisela em 1974, no Kuito.
+
+![Fig.5 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+
+**Fig.5** - Alexandre e Gisela
