@@ -258,10 +258,14 @@
 
 **Fig.4** - Casamento de Rosa Reis, Huambo, 1971.
 
-![Fig.5 - Rosa Reis e a sua filha Gisela em 1974, no Kuito.](Rosa_Reis_Gisela_Reis_1974.jpeg)
+![Fig.5 - Batizado do meu tio Alexandre Reis, Kuito, 1972.](Batizado_Alexandre_Reis_1972_Kuito.jpeg)
 
-**Fig.5** - Rosa Reis e a sua filha Gisela em 1974, no Kuito.
+**Fig.5** - Batizado do meu tio Alexandre Reis, Kuito, 1972.
 
-![Fig.6 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+![Fig.6 - Rosa Reis e a sua filha Gisela em 1974, no Kuito.](Rosa_Reis_Gisela_Reis_1974.jpeg)
 
-**Fig.6** - Alexandre e Gisela
+**Fig.6** - Rosa Reis e a sua filha Gisela em 1974, no Kuito.
+
+![Fig.7 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
+
+**Fig.7** - Alexandre e Gisela
