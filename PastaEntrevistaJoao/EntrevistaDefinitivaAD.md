@@ -244,3 +244,6 @@
 
 ![Fig.1 - Alexandre e Gisela](Foto_5_Alexandre_e_Gisela.jpeg)
 
+*Fig.1 - Alexandre e Gisela*
+
+
