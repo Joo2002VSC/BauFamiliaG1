@@ -237,5 +237,9 @@
 
 **Avó do João:** De nada. Sempre.
 
----
 ## Final da Entrevista
+
+---
+#Fotos:
+![Fig.1 - Alexandre e Gisela](Foto 5 - AD.jpeg)
+
