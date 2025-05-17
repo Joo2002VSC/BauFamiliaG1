@@ -1,0 +1,10 @@
+[project]
+name = "freq" NOME DO DOCUMENTO
+authors = [{name = "Joana Lucas Fernandes Azevedo", email = "joanaazevedo2002@gmail.com"}, ]
+license = {text = "MIT"}
+version = "0.0.1"
+description = "" DESCRIÇÃO DO DOCUMENTO
+dependencies = ["jjcli", "spacy"] IMPORTS UTILIZADOS
+
+[project.scripts]
+textfreq = "freq:main" COMO QUERO INVOCAR O DOCUMENTO
