@@ -1,5 +1,6 @@
 00:00:00 Joana
 Qual é a Memória mais antiga de... que te recordas?
+
 00:00:04 Abel
 Recordo também a Memória mais antiga? Do meu falecido avô, que era marinheiro, que era responsável na em Matosinhos, pelas praias, pelas Docas.
 Nós íamos muitas vezes a brincar para a casa dele. Ele tinha tudo muito certinho, as canetas no sítio certo, o boné, tudo nós mexíamos naquilo. Ele ficava furioso em atraso de nós a ralhar, não é? Não NOS batia, mas ía-nos ralhar.
@@ -19,8 +20,10 @@ Estamos na praia controvoada fazer Chuva, ver o Sol, a minha mãe ia todos os di
 Abel
 Independentemente do tempo que estivesse todos os dias, essas são as mesmas horas mais antigas.
 Que eu tenho.
+
 00:02:49 Joana
 Falaste do teu avô, que era marinheiro? Há alguma Memória que te chama mais atenção que passaste com ele.
+
 00:02:55 Abel
 Sim, ele contou-me que foi um dos entre 30 homens num temporal muito grande no Porto de leixões. Às 2 da manhã, saiu de casa a correr em Marcos a remos e foi para para o mar a correr risco de vida porque o Nuno muitos navios estavam a afundar com o mau tempo, porque relativamente o Porto de Leixões não é como é agora era em mar aberto.
 Á, o mar está mau tempo, ele foi…
@@ -32,14 +35,18 @@ Quase a pão e água e a beber água do mar já na, na, nos últimos dias, antes
 Que eu andava com uma fita métrica nas praias a ver as senhoras na praia que se tinham mais de 20 cêntimos quem tivesse mais de 20 cêntimos de perna à mostra apanhava uma multa. Aquilo passava a multa na altura e as pessoas iam pagar depois à capitania do Porto porque era a obrigação dele verificar se as senhoras não tinham mais de 20 cm de perna à mostra. Havia uma praia em Matosinhos, que era a praia dos ingleses. Ainda existe que é agora a parte curva do castelo do queijo, onde é só os ingleses, é que frequentavam aquela praia e ele também ia lá.
 Fazer fiscalizações às senhoras inglesas que tinham mais de 20 cm de perna à mostra, disse, não eram multadas e seriamente multadas.
 Isso é uma das coisas que ele me contava das curiosidades que fazia quando era mais novo na marinha e quando chegou a, a, a para, para a Capitania de Matosinhos. Ele era capitão de, ele era cabo de mar e guerra, que era o atual… Seria hoje, talvez um tenente, na altura não havia. Ele teve na guerra, portanto, tinha já um bom posto militar na Capitania de, de Leixões.
+
 00:05:48 Joana
 Ele falava bem na guerra ou tinha muita dificuldade em falar sobre isso contigo?
+
 00:05:52 Abel
 Não, não tinha dificuldade nenhuma, muito pelo contrário, ele gostava normalmente com muita coragem.
 Estava com orgulho da guerra e dos feitos de do dos poucos combates que teve na Primeira Guerra Mundial. Não é que assustaram, como é óbvio, ninguém ia de ferro, mas uma coisa que ele também tinha. Ele nunca tomou banho de água quente na vida toda, só Tomar banho de água fria. Eu Não sabia o.
 Era água quente NOS banhos.
+
 00:06:14 Joana
 Qual é a importância das fotografias que trouxeste?
+
 00:06:18 Abel
 Bem, este é o é o é o meu pai e a minha mãe. Já velhitos, não é? A minha mãe já estava se é demente nesta fotografia com o neto que acabou de nascer, meu pai com uma cara sempre de, de, de mau, mas nunca foi mau má pessoa, nem nunca foi mau para ninguém, muito pelo contrário, mas tinha sempre aquele cara um bocado sisudo que era de, do defeito.
 A minha mãe estava de mentes, estava muito doente nesta altura. Foi uma alegria muito grande para a minha mãe e para o meu pai. Como é óbvio, nasceram o primeiro netinho.
@@ -48,40 +55,54 @@ Passado uns tempos, as pessoas acabam por falecer um e outro. Não é? Com meio 
 Isto foi na fase que a minha mãe estava demente na totalidade antes de cair e se calhar acamado e o meu pai sempre me lembro, tratava sempre muito bem a minha mãe.
 Estava sempre presente. As minhas irmãs também, principalmente a minha irmã mais velha, a Maria José. A outra não raramente ia lá. A casa ia lá só fazer a, a visita de, da praxe não ajudava em nada, enquanto a minha irmã ficava lá. Os, os dias todos com a com a minha mãe e com o meu pai, e eu ia lá ao fim de semana para ela poder descansar ia lá na sexta e sábado ficava lá eu a Tomar conta deles para a minha irmã poder descansar até que eles faleceram. Isto é a fotografia.
 De em alegria e tristeza ao mesmo tempo, porque já era uma fase muito chata… nesta, nesta fotografia.
+
 00:07:59 Joana
 E a fotografia do teu avô é, é?
+
 00:08:03 Abel
 É importante. Porque ele era um homem, era um homem muito medalhado aqui, embora esta aqui não tinha medalhas, todas tinha algumas, foram muito medalhado, tinha muitas medalhas na principalmente na Primeira Guerra Mundial, nos combates que teve no mar com.
 E porque quando foi promovido ele era, ele era um marinheiro, não é? Depois que foi promovido para cabo e depois para cabo de Mário e guerra, porque era um era um homem do, do era um militar de com carreira prática lá na guerra, não é? Ele foi à guerra, não é ele não esteve só NOS barcos, não esteve só na Capitania, esteve na guerra na Segunda Guerra Mundial.
 Foi a salvação da, da rua onde ele morava com a minha mãe e com a com a com a mulher, porque ele trazia tudo, trazia chocolates, trazia peixes, trazia brinquedos, trazer tudo que ninguém tinha. A única coisa que ele não conseguia trazer era o pão, que era racionado por senhas. O Estado não permitia então o pão. Ele não conseguia trazer então a, a minha avó e a minha mãe iam para as filas do pão e terminavas com as senhas da, da racionalizadas da Segunda Guerra Mundial, ir buscar o pão, mas o resto…
 Toda A Gente tinha tudo, bebidas, peixe, carne na rua, ele partilhava tudo com Toda A Gente, era um homem sisudo, era um homem muito militar, muito disciplinado, muito… mas ajudava toda a gente, ajudava toda a gente.
+
 00:09:18 Joana
 Alguma vez gostavas de ter seguido os passos do teu avô?
+
 00:09:20 Abel
 Eu tentei, mas havia tanta gente, tantos voluntários naquela altura que eu fiquei na reserva territorial durante um ano, à espera de ser.
 E quando recebi a carta da Marinha, pensava que era para ser chamado, não mandaram-me para a reserva porque tinha, tinha acabado o prazo de, de, do meu voluntariado e não seria chamado pronto, mas eu tinha voluntariado para os fuzileiros na altura, mas.
 Eram tantos, tanta gente que foi, foi selecionada aquilo depois foi um bocado aleatório, foi pelos números de cada um. Quase um sorteio não é uns foram chamados, outros não foram chamados e eu fiquei na reserva um ano à espera de ser chamado a alguma desistência para entrar. No entanto, ninguém desistiu. Eu fiquei na reserva de incorporação e depois passei para a reserva territorial. E não, não fui à tropa, mas foi daqueles que se voluntariou para ir.
+
 00:10:07 Joana
 Há alguma coisa que te arrependas não ter feito?
+
 00:10:101 Abel
 Não. Nunca. Só me arrependo daquilo que não fiz daquilo que fiz. Nunca me arrependi bem ou mal.
 Tive que o fazer.
+
 00:10:15 Joana
 E o que é que arrepende de não ter feito?
+
 00:10:19 Abel
 Ora, não consegui ter ido para a marinha como o meu avô. Não vou, não consegui ter entrado para os fuzileiros e eu, se calhar, até foi melhor. Não é? Ou não? Não sei se calhar estava tinha, tinha era militar de carreira como o meu avô provavelmente seria um dos meus sobrinhos. Foi matar e é matar de carreira também inspirado um bocadinho pelo bisavô, não é?
 Que ele está na nos comandos e é comando de paraquedismo. É sargento comando paraquedista e mas foi inspirado até no na carreira do aluno do bisavô, neste caso no bisavô.
+
 00:10:45 Joana
 Se pudesse dizer alguma coisa a alguém que já partiu, o que é que dirias?
+
 00:10:50 Abel
 Ui não sei, não faço ideia, não faço ideia, não faço ideia. Depende da pessoa que partiu, não é?
 Não faço ideia.
+
 00:10:57 Joana
 Sempre que disseste tudo o que querias dizer a toda a gente ou?…
+
 00:11:01 Abel
 Sim, sim, sim, sim, sim, venham mal sempre disso.
+
 00:11:05 Joana
 O que é que costumava fazer na tua rua quando eras mais novo?
+
 00:11:08 Abel
 Quando era da idade, quando entre, entre os a primária e o secundário, andava sempre na rua sair de casa cedo, que nas férias, principalmente sair de casa muito cedo e também NOS juntarmos uns amigos todos na rua e depois irmos andar de bicicleta, jogar à bola na rua, irmos para a praia, mas basicamente estávamos sempre na praia. Nós fizemos praia 12 meses ao ano, não é verão de Inverno irmos sempre, porque era nosso Recreio. Era a praia, íamos de barco na praia, o meu pai tinha, eu tinha um barco de borracha que de Inverno íamos para a praia, tentar ver se conseguimos vencer as ondas.
 Íamos de bicicleta para muito longe, fazemos muitos quilómetros, íamos à noite, às vezes para o Porto, para a arrábida andar de bicicleta.
@@ -94,8 +115,10 @@ Eram eram, era diferente. Nós temos que arranjar soluções para nos entreter, 
 O cinema sempre não é. O Star Wars sempre foi ao Star Wars, os filmes do Spielberg. Na altura, era a grande coqueluche e ficou aquela marca na minha geração toda, do tanto, gosta de, dos, dos filmes de Star Wars que diga quem não gosta porque era.
 Era o Star Wars que me apareceu depois mais tarde do Alien também, que foi que ficou muito Na Na Memória de Toda A Gente, porque são eram filmes que hoje em dia são um bocado ridículos, vê-los outra vez porque os efeitos especiais eram demasiado básicos, não é? Comparados com os efeitos especiais que há hoje em dia. Aquilo não parecia nada real, não é? Mas para nós, aquilo é novo com luxo. Depois apareceram os computadores, o Spectrum Juntávamos 10 ou 15 gajos na minha casa ou em casa de outro amigo a jogar Spectrum é comprar revistas na, nas tabacarias com código, com linhas de códigos básicas.
 Para fazer os Jogos, fomos uma cassete, fomos leitores e todos fascinados com aquilo que hoje em dia olhamos e é ridículo. Não é que é demasiado básico, demasiado rudimentar, primitivo até, mas era entretenimento e estarmos ali. Depois apareceu o Comodor 64. A coisa foi evoluindo, mas era tudo muito, muito, muito, muito, muito rapaz, muito básico, mas era o nosso tratamento, era isso.
+
 00:14:22 Joana
 Já viajaste muito. Qual é os sítios que mais te chamam a atenção nas memórias?
+
 00:14:27 Abel
 Do Brasil quando eu saudades, o resto é bonito, mas não deixa saudades. Do Brasil sim. É um país muito bonito e tive oportunidade de estar lá uns dias largos. Estive 20 e tal dias 27 dias. Acho eu no Brasil, no Rio de Janeiro, depois percorri a Baía toda e, portanto, é que toda a zona do, da, do, da Baía.
 Em… em, no Brasil todo aquele Nordeste, mas na, na, nos, no Estado de Salvador, que é que além disso meteu as tartarugas a pôr os ovos.
@@ -108,8 +131,10 @@ Como o, o do euro, está muito forte em relação ao, ao real, continua está qu
 7 reais para 1 euro, na altura era de 12 reais para 1 euro, portanto, é fácil fazer a conta, não é 10 reais × 12.
 12 euros. Já sabemos quantos reais é que era, que era muito dinheiro para a altura, portanto nós, nós podemos dar ao luxo de ir jantar e pagar um ordenado mínimo brasileiro daquele naquele momento, portanto, não passava de 12 euros que era ridículo, não é mesmo? Quando paramos para o padrão que tínhamos na altura na Europa e em Portugal, era ridículo, muito baixo e estamos a falar. É a mesma coisa que nós pegámos num ordenado de 700 euros e gastamos num jantar, portanto era a mesma coisa que os brasileiros sentiam quando nós gastávamos 12 euros ou 13 num jantar ou não almoço achar, estes gajos não têm nada a fazer o dinheiro, mas pronto, mas pronto era tudo muito barato. Era assim, foi das memórias mais…
 E o Rio de Janeiro era muito bonito. Perigoso. Andámos sempre escondidos, sempre de sinal de dedo e t-shirts e calções de banho. Calções de short, sim, uns shotsinhos, uns calções e calções de banho a toalha debaixo do braço para não parecermos os turistas, porque era na altura muito perigoso ir ao Rio de Janeiro. Muito perigoso.
+
 00:17:23 Joana
 Há mais algum sítio que já tenhas viajado, que gostava de voltar?
+
 00:17:27 Abel
 Tunísia. Á Tunísia gostava, gostava muito de voltar. Porque a Tunísia é muito bonita. É um dos países árabes, se calhar mais bonitos, e o Egito que nunca fui. Gostava de ir ao Egipto pela história, pelas pirâmides, pelo Nilo. Deve ser lindíssimo. Agora a Tunísia é um dos países muito, muito menos é o se calhar dos países árabes mais, mais europeus. Se possa chamar do, do mundo árabe porque está muita influência no turismo. São vocacionados pelo turismo, não é? São águas, são cenários do Star Wars todos não é. Tem lá a Tatooine que existe. 
 Nem, nem o, o, o, o, o autor da, da saga Star Wars se preocupou em mudar o nome da aldeia, manteve Tatooine que é o deixar nosso mesmo Tatooine e esse e o cenário Tatooine mantém-se lá com as pronto, com as alterações que ele fez para fazer os cenários para o Star Wars e aquilo é muito bonito. Tem tem a parte romana, porque nós não há uma parte da Tunísia que se vê a Sicília. De outro lado, em dias claros consegue-se ver a Terra. É muito curto, a distância é muito pequena.
