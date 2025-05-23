@@ -9,13 +9,11 @@ Entrevistada: Ana
 
 ---
 
-**00:00**
+**Joana:** 
+Qual é a Memória mais antiga de que te recordas?
 
-**Joana:** Qual é a Memória mais antiga de que te recordas?
-
-**00:03**
-
-**Ana:** A Memória mais antiga... quando estava no infantário e, ehh... tinha 3 anos.
+**Ana:** 
+A Memória mais antiga... quando estava no infantário e, ehh... tinha 3 anos.
 O Meu Irmão, que é mais velho do que eu estava na sala dos 4, eu na sala dos 3, não é? E A Freira começou a resmungar comigo porque eu tinha que comer, tinha que tomar o leite e eu odiava o leite não gostava de leite, e ainda hoje não gosto.
 E ela não sais daqui enquanto que não tomaste o leite, eu apanhei-a distraída, saí pela porta fora, entrei na sala do meu irmão, ele também estava a lanchar, enfiei-me debaixo da mesa do meu irmão e escondi-me no meio das pernas dele e disse, não digas que eu estou aqui!!!.
 É lógico que me descobriram, não é?
@@ -31,13 +29,11 @@ Depois memórias... outras memórias eu por acaso, grandes memórias da minha in
 Ehhh...
 E não sei mais memórias.
 
-**02:28**
+**Joana:** 
+(Podes) Desenvolver mais sobre como te sentires durante o 25 de Abril e o que é que aconteceu na tua zona?
 
-**Joana:** (Podes) Desenvolver mais sobre como te sentires durante o 25 de Abril e o que é que aconteceu na tua zona?
-
-**02:32**
-
-**Ana:** É assim, eu pouco pouco posso falar dessa altura, porque eu tinha… 5 anos.
+**Ana:** 
+É assim, eu pouco pouco posso falar dessa altura, porque eu tinha… 5 anos.
 Ehhh...
 Houve memória que eu tenho dessa altura foi a minha mãe me ter ido buscar ao infantário porque... E o infantário era à beira do governo civil de Braga.
 Eh estava e estavam lá os tanques, estavam os camiões, aquelas carrinhas de caixa aberta atrás da, da, da, da dos militares em que estavam todos em cima das carrinhas,... todos vestidos de militar,... vários tanques, eles com as metralhadoras...
@@ -71,13 +67,11 @@ Porquê? Porque passávamos a vida na rua, na brincadeira e eu era um bocadinho 
 Porque, a minha irmã era muito mais nova, e eu, já adolescente, ela ainda era pequenita ainda queria brincar com bonecas, mas eu já estava na rua a brincar com os meus irmãos.
 E claro, maior parte da dos miúdos lá da rua eram rapazes e eu passava a minha vida, e passei a minha pré-adolescência a jogar futebol,... Andar nos carrinhos de rolamento, até que começaram a vir para lá, meninas da minha idade viver e também comecei a criar amizades com as meninas, e depois veio a adolescência, o tempo de namoro e, e fomos crescendo todos, e, e hoje ficam as lembranças.
 
-**04:43**
+**Joana:** 
+Lembras-te do teu primeiro namorado?
 
-**Joana:** Lembras-te do teu primeiro namorado?
-
-**04:46**
-
-**Ana:** Lembro...
+**Ana:** 
+Lembro...
 Coitadito... ele queria casar, mas eu não queria eu tinha. Eu era muito jovem, tinha 19 anos e não queria, e ele foi pedir ao meu pai, e o meu pai disse, quem vai casar é a minha filha, não sou eu. Por isso, se ela não quer casar contigo, eu não posso fazer nada.
 Ehhh,... tens que falar com ela, tens que te entender com ela.
 E...
@@ -91,13 +85,11 @@ Por acaso também ainda não nasceu…
 Ahhh...
 E pronto, eu também fui sempre assim, uma miúda com uma personalidade muito forte, bá… Ahhh… Sempre fui uma adolescente difícil com os meus pais, porque... eu queria sempre ir passear e os meus pais não me deixavam… E eu aproveitava a saída dos meus irmãos e fazia de conta que ia com eles e,... e que era que era para poder ir namorar, para poder ir sair com as minhas amigas e depois marcava encontro com os meus irmãos mais tarde que era para poder entrar em casa. E foi, e foi uma, uma infância engraçada. Muito diferente dos dias de Hoje que passam a vida no computador,... ao telemóvel,... e não há conversas…
 
-**09:46**
+**Joana:** 
+Há alguma coisa que te arrependas de não ter feito?
 
-**Joana:** Há alguma coisa que te arrependas de não ter feito?
-
-**09:50**
-
-**Ana:** De não ter feito?
+**Ana:** 
+De não ter feito?
 Não… Eu não me arrependo propriamente. Tudo o que eu tudo o que se passou na minha vida, tudo o que eu vivi até hoje foram aprendizagens.
 Houve coisas boas, houve coisas menos boas e houve coisas más, mas as más também serviram de aprendizagem. Serviram-me para eu, hoje não as voltar a repetir. Se elas não tivessem sido tivessem acontecido no passado, talvez eu agora em nível adulta fosse fazer e depois seria mais difícil de contornar e de remendar, digamos assim.
 Ehh… Não, não me arrependo de nada, não me arrependo de nada.
@@ -114,23 +106,19 @@ Se,… se,… se as coisas que que aconteceram não tivessem sido dessa forma, a
 Se Eu tivesse matado alguém?
 OK podia ter arrependido, mas não também não fiz assim nenhuma asneira de de… Grande, sempre fui pronto irreverente uma personalidade forte, mas não tenho nada que… pronto que que me arrependesse, só serviu de… Para levar a minha vida à frente e ser feliz, e posso considerar-me uma pessoa feliz.
 
-**12:36**
+**Joana:** 
+Existe alguma coisa que se tivesse oportunidade de dizer a alguém especial dissesses, e se neste momento pudesses dizer o que é que dirias?
 
-**Joana:** Existe alguma coisa que se tivesse oportunidade de dizer a alguém especial dissesses, e se neste momento pudesses dizer o que é que dirias?
-
-**12:49**
-
-**Ana:** Com essa pergunta, o que me ocorre é a minha mãe e o meu pai que não estão cá presentes hoje. O que me ocorre é, é ter tido tempo de me despedir deles, dizer que os amava muito e que tenho imensas saudades deles.
+**Ana:** 
+Com essa pergunta, o que me ocorre é a minha mãe e o meu pai que não estão cá presentes hoje. O que me ocorre é, é ter tido tempo de me despedir deles, dizer que os amava muito e que tenho imensas saudades deles.
 Ehhh...
 De resto, não me ocorre... mais nada, porque nas pessoas de hoje eu digo-lhes constantemente que as amo. Porque eu amo viver, amo a vida, e amo as pessoas que estão ao meu lado.
 
-**13:25**
+**Joana:** 
+Qual é a importância das fotografias que trouxeste?
 
-**Joana:** Qual é a importância das fotografias que trouxeste?
-
-**13:29**
-
-**Ana:** A importância das fotografias, tem a ver com um desejo que eu carregava na altura… ehhh... há muitos anos. Eu desde muito cedo… ehh… Que tive 11 relógio biológico, digamos assim. Começou a, a tocar muito cedo, e eu desde muito cedo, muito jovem, ehhh… Tinha o desejo de ser mãe.
+**Ana:** 
+A importância das fotografias, tem a ver com um desejo que eu carregava na altura… ehhh... há muitos anos. Eu desde muito cedo… ehh… Que tive 11 relógio biológico, digamos assim. Começou a, a tocar muito cedo, e eu desde muito cedo, muito jovem, ehhh… Tinha o desejo de ser mãe.
 Ehhh...
 Talvez por... ter 6 irmãos, ter ser pertencer a uma família... grande.
 Éramos, éramos muitos todos os dias à mesa e havia aquele conceito de, de família ehhhh… E quando eu casei, era só eu e ele. E aquilo fazia-me muita confusão.
@@ -151,13 +139,11 @@ Ehhh...
 E, e adorei, adorei ver o,... É uma dádiva da natureza.
 A mulher, sentir o corpo a alterar... Sentirmos que... Que o nosso corpo está está a mudar, não é? Está está ali 1, 1, 1 ser a crescer. E, e foi um, um momento da minha vida, muito bonito e muito marcante.
 
-**16:53**
+**Joana:** 
+Um dia ainda arrependes-te de não teres mais filhos, ainda gostavas de ter sonho completado, de ter muitos filhos como tinhas dito?
 
-**Joana:** Um dia ainda arrependes-te de não teres mais filhos, ainda gostavas de ter sonho completado, de ter muitos filhos como tinhas dito?
-
-**17:02**
-
-**Ana:** É assim...
+**Ana:** 
+É assim...
 A vida dá muitas voltas.
 E eu tive o, o primeiro filho.
 Tive a dádiva de 5 anos depois de ter tido a Felicidade de ter tido outro, de um sexo diferente, o que foi maravilhoso porque...
