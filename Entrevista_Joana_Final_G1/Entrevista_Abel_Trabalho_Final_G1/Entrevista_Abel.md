@@ -156,6 +156,6 @@ Judeus, portanto, tudo o que é jóias tunisinas geralmente vem de famílias jud
 
 ![Pai e Mãe de Abel com o neto, Daniel, em 2008](Avos_Dani_bebe.jpg)
 
-![Avô do Abel, José fardado, frente](Jose_Avo_Abel.jpg)
+![Avô do Abel, José fardado, com 58 anos de idade, frente](Jose_Avo_Abel.jpg)
 
-![Avô do Abel, José fardado, verso](Jose_Avo_Abel_Verso.jpg)
+![Avô do Abel, José fardado, No verso diz "Esta fotografia foi tirada com 58 anos de idade José Moreira",verso](Jose_Avo_Abel_Verso.jpg)
