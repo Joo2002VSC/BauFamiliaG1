@@ -153,3 +153,9 @@ Portanto, pode ser de barco de de Itália para a Tunísia, e os Romanos vieram a
 É todo mundo é tounense e depois tem o universo todo o Star Wars nos desertos, cidades romanas, as fenícias tem tem todos. Os povos passaram pela Tunísia, que é muito bonito de de saber os judeus é o único país onde os judeus é os árabes se entendem, eles vivem, vivem perfeitamente perfeita a harmonia. Não há judeus nem há árabes como a gente vê nos conflitos, não é israelitas como os palestinianos e não só, e com o mundo árabe, os judeus e os árabes. Ali não na Tunísia não há esse.
 Esse problema com com os judeus, judeus realmente são orientados para para as jóias. São os livros. Praticamente isso é tudo o livro.
 Judeus, portanto, tudo o que é jóias tunisinas geralmente vem de famílias judaicas. A produção e a conceção das jóias é tudo judaico e não há. Não há conflitos entre judeus e árabes, tratam-se e questão também. As religiões de ali são todas muito toleradas. Ninguém é contra ninguém, ninguém é fundamentalista nem nada.
+
+![Pai e Mãe de Abel com o neto, Daniel, em 2008](Avos_Dani_bebe.jpg)
+
+![Avô do Abel, José fardado, frente](Jose_Avo_Abel.jpg)
+
+![Avô do Abel, José fardado, verso](Jose_Avo_Abel_Verso.jpg)
