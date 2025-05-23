@@ -1,3 +1,14 @@
+---
+Title: Entrevista ao meu pai, Abel para o Trabalho Final de Análise e Visualisação de Dados
+
+Date: 01/05/2025
+
+Entrevistadora: Joana
+
+Entrevistado: Abel
+
+---
+
 **Joana:**
 Qual é a Memória mais antiga de... que te recordas?
 
