@@ -31,7 +31,7 @@ frequencia = Counter(keywords)
 # Converter para DataFrame e guardar CSV
 df_keywords = pd.DataFrame(frequencia.items(), columns=["Keyword", "Frequência"])
 df_keywords = df_keywords.sort_values(by="Frequência", ascending=False)
-df_keywords.to_csv("keywords_top10.csv", index=False)
+df_keywords.to_csv("keywords.csv", index=False)
 
 # Gráfico Top 10
 top_10 = df_keywords.head(10)
