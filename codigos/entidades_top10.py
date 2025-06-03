@@ -42,7 +42,7 @@ df_entidades = pd.DataFrame(
 df_entidades = df_entidades.sort_values(by="Frequência", ascending=False)
 
 # Guardar CSV
-df_entidades.to_csv("entidades_top10.csv", index=False)
+df_entidades.to_csv("entidades.csv", index=False)
 
 # Gráfico Top 10 Entidades (em laranja)
 top_10 = df_entidades.head(10)
