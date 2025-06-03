@@ -28,7 +28,7 @@ frequencias = Counter(lemas)
 # Converter em DataFrame e guardar CSV
 df_lemas = pd.DataFrame(frequencias.items(), columns=["Lema", "Frequência"])
 df_lemas = df_lemas.sort_values(by="Frequência", ascending=False)
-df_lemas.to_csv("lemas_top10.csv", index=False)
+df_lemas.to_csv("lemas.csv", index=False)
 
 # Gerar gráfico Top 10
 top_10 = df_lemas.head(10)
